@@ -1,1 +1,0 @@
-# Comunik-Adesivos
